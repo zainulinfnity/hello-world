@@ -1,1 +1,1 @@
-<h1> Go Back Corona !!! !!!! </h1>
+<h1> Go back Omicron !!! !!!! </h1>
